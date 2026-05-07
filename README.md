@@ -1,1 +1,1 @@
-çok açımmmmm
+çok açımmmmm ama yemeğe yarım saat var 
