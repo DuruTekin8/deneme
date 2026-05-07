@@ -1,1 +1,1 @@
-çok açım
+çok açımmmmm
